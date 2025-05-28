@@ -1,1 +1,1 @@
-# Adithya-s-mini-Projects
+# Adithya's-mini-Projects
